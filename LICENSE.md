@@ -1,4 +1,4 @@
-
+smart OneNote for macOS Script | export to PDF + dark mode offers the most advanced OneNote for macOS script, with export to PDF and dark mode. Ideal for professionals.
 
 
 
